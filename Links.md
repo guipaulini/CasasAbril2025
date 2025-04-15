@@ -15,3 +15,6 @@
 | Reserva da mata | [1.100k](https://www.zapimoveis.com.br/imovel/venda-casa-de-condominio-3-quartos-com-churrasqueira-jardim-celeste-jundiai-sp-150m2-id-2701674179/) | Casa bem novinha e bonita (terreno peqno)|
 | Reserva da mata | [1.300k](https://www.zapimoveis.com.br/imovel/venda-casa-de-condominio-3-quartos-com-academia-parque-corrupira-etapa-1-jundiai-sp-158m2-id-2757163719) | Casa bonita (terreno peqno)|
 | Reserva da mata | [1.300k](https://www.zapimoveis.com.br/imovel/venda-casa-de-condominio-3-quartos-com-academia-parque-corrupira-etapa-1-jundiai-sp-156m2-id-2750220042/) | Bonita bonita (terreno peqno)|
+| ## Garden 195 | [878k](https://hadjaimoveis.com.br/comprar/sp/jundiai/jardim-shangai/casa/76285816) | Essa não é de todo ruim. Tá arrumadinha. Não vou descartar. Vamos pedir pra marcar com vc novamente 
+| ## Canto da Nat. | [1.145k](http://www.hadjaimoveis.com.br/comprar/sp/jundiai/jardim-shangai/casa/75965595) | Boller aquecimento solar e beeem bonita |
+| ## Canto Nat. (casa dupla) | [1.870k](http://www.hadjaimoveis.com.br/comprar/sp/jundiai/jardim-shangai/casa/76132718) | Cara, mas é tec e legal... se quiser tem que negociar muito |
