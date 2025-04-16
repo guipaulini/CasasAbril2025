@@ -3,7 +3,7 @@
 |1| ## Garden 195 | [878k](https://hadjaimoveis.com.br/comprar/sp/jundiai/jardim-shangai/casa/76285816) | Essa não é de todo ruim. Tá arrumadinha. Não vou descartar. Vamos pedir pra marcar com vc novamente 
 |2| ## Canto da Nat. | [1.145k](http://www.hadjaimoveis.com.br/comprar/sp/jundiai/jardim-shangai/casa/75965595) | Boller aquecimento solar e beeem bonita |
 |3| ## Canto Nat. (casa dupla) | [1.870k](http://www.hadjaimoveis.com.br/comprar/sp/jundiai/jardim-shangai/casa/76132718) | Cara, mas é tec e legal... se quiser tem que negociar muito |
-| - |Não visitadas|xx|xx|
+| - |Não visitadas|-|-|
 |4| Cd. Vale Verde  | [1.250k](https://www.zapimoveis.com.br/imovel/venda-casa-de-condominio-3-quartos-com-churrasqueira-jardim-gramadao-i-jundiai-sp-225m2-id-2796081236/)           | Casa não parece tão bonita, mas é bem localizada (condominio ao lado do jardim Angelim) |
 |5| Cd. Vale Verde | [1.240k](https://www.zapimoveis.com.br/imovel/venda-casa-de-condominio-3-quartos-com-piscina-jardim-gramadao-i-jundiai-sp-132m2-id-2759663144/) | Casa ainda não está 100% pronta, mas é bem localizada (condominio ao lado do jardim Angelim) |
 |6| Cd. Quinta das Videiras | [1.390k](https://www.zapimoveis.com.br/imovel/venda-casa-de-condominio-3-quartos-jardim-quintas-das-videiras-jundiai-sp-225m2-id-2795175421/)         | Próximo ao jardim Angelim Bonita, mas cara    |
